@@ -4,3 +4,12 @@
 
 ㅤㅤㅤㅤ꒰ㅤㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/2822157017/profile)ㅤㅤㅤ<span style="color:#7e7f86">Feel </span><span style="color:#9C9DA7FF">free</span> <span style="color:#AFB1BBFF">to </span><span style="color:#BDADAAFF">add</span> <span style="color:#A49693FF">me! </span><span style="color:#908481">♡</span>
 
+![](https://i.postimg.cc/j5DDs3f1/cute.png)
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31oeleffqh23bidpk6kgmamq2r4a&cover_image=true&theme=spotify-embed&show_offline=false&background_color=908481&interchange=false&profanity=false&hide_remaster=false&mode=light&bar_color=a49693&bar_color_cover=false">
+  </a>
+</p>
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/2ywRgr6k/flower.png" width="150">
