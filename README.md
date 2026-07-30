@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://img.shields.io/badge/TOJI-MAMAGURO-white?labelColor=F0D9E1)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://img.shields.io/badge/TOJI-MAMAGURO-white?labelColor=F0D9E1)
 
 ![](https://i.postimg.cc/3NrjX4LJ/mamaguroo.png)
 
