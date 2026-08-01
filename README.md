@@ -12,7 +12,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/j5DDs3f1/cute.png" width="500">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ   $\color{#C9B09A}{Hey!}$ $\color{#D8B9B9}{I'm}$ $\color{#E9D5C8}{Thai}$ $\color{#F3E6BE}{=.=}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ   $\color{#C9B09A}{Hey!}$ $\color{#D8B9B9}{I'm}$ $\color{#E9D5C8}{Thai}$ $\color{#F3E6BE}{=.=}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#C4AE97}{I}$ $\color{#CFB9A6}{might}$ $\color{#D8C3B5}{not}$ $\color{#E4CEC4}{understand}$ $\color{#F0D9CF}{English}$ $\color{#F6E4D3}{very}$ $\color{#F8ECCE}{well,}$ $\color{#F4E5D8}{but}$ $\color{#ECD9D8}{I'll}$ $\color{#DEC7CA}{try}$ $\color{#D0B6B9}{to}$ $\color{#C9B09A}{talk!}$
 
@@ -24,7 +24,7 @@
   </a>
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    $\color{#7E7F86}{This}$ $\color{#888991}{is}$ $\color{#9294A0}{me}$ $\color{#9C9DAF}{on}$ $\color{#A7A8BC}{Pony}$ $\color{#908481}{Town!}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    $\color{#7E7F86}{This}$ $\color{#888991}{is}$ $\color{#9294A0}{me}$ $\color{#9C9DAF}{on}$ $\color{#A7A8BC}{Pony}$ $\color{#908481}{Town!}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{I}$ $\color{#888991}{usually}$ $\color{#9294A0}{use}$ $\color{#9C9DAF}{Kaori,}$ $\color{#A7A8BC}{Mamaguro,}$ $\color{#B8B9C4}{or}$ $\color{#A69B98}{Megumi}$ $\color{#908481}{skins . .}$
 
