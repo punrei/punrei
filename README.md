@@ -8,7 +8,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7e7f86}{Sorry}$ $\color{#888991}{if}$ $\color{#9294A0}{I}$ $\color{#9C9DAF}{seem}$ $\color{#A7A8BC}{a}$ $\color{#B2B3C6}{little}$ $\color{#BEC0CE}{awkward}$ $\color{#C2C4CE}{or}$ $\color{#BEBBBF}{if}$ $\color{#B8B1AF}{I'm}$ $\color{#AEA5A1}{not}$ $\color{#A69B98}{very}$ $\color{#9E9290}{good}$ $\color{#978A88}{at}$ $\color{#908481}{talking!}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{I}$ $\color{#7e7f86}{only}$ $\color{#9c9da7}{use}$ $\color{#afb1bb}{Ins}$ $\color{#908481}{sometimes}$  [Ins](https://www.instagram.com/1fyourememberme?igsh=MXFrdjU4OGRjYWp2bg==) ㅤㅤㅤㅤㅤ꒱
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{I}$ $\color{#7e7f86}{only}$ $\color{#9c9da7}{use}$ $\color{#afb1bb}{Ins}$ $\color{#908481}{sometimes}$  [Ins](https://www.instagram.com/1fyourememberme?igsh=MXFrdjU4OGRjYWp2bg==) ㅤㅤㅤㅤㅤ꒱
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/j5DDs3f1/cute.png" width="500">
 
