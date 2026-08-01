@@ -16,7 +16,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#D2C1C2}{might}$ $\color{#CBC0C6}{not}$ $\color{#C2BACB}{understand}$ $\color{#B8B2CC}{English}$ $\color{#AEAACC}{very}$ $\color{#A3A1CA}{well,}$ $\color{#9797C4}{but}$ $\color{#8988B7}{I'll}$ $\color{#7B78A3}{try}$ $\color{#726F95}{to}$ $\color{#6B6A8B}{talk!}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D9C5BF}{My}$ $\color{#A99DC3}{little}$ $\color{#6B6A8B}{sister!}$ [ @rinoya-147](https://github.com/rinoya-147)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D9C5BF}{My}$ $\color{#A99DC3}{little}$ $\color{#6B6A8B}{sister!}$ [ @rinoya-147](https://github.com/rinoya-147)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
