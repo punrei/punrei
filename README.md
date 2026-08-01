@@ -12,7 +12,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ   $\color{#C9B09A}{Hey!}$ $\color{#D8B9B9}{I'm}$ $\color{#E9D5C8}{Thai}$ $\color{#F3E6BE}{=.=}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#C4AE97}{I}$ $\color{#CFB9A6}{might}$ $\color{#D8C3B5}{not}$ $\color{#E4CEC4}{understand}$ $\color{#F0D9CF}{English}$ $\color{#F6E4D3}{very}$ $\color{#F8ECCE}{well,}$ $\color{#F4E5D8}{but}$ $\color{#ECD9D8}{I'll}$ $\color{#DEC7CA}{try}$ $\color{#D0B6B9}{to}$ $\color{#C9B09A}{talk!}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#C4AE97}{I}$ $\color{#CFB9A6}{might}$ $\color{#D8C3B5}{not}$ $\color{#E4CEC4}{understand}$ $\color{#F0D9CF}{English}$ $\color{#F6E4D3}{very}$ $\color{#F8ECCE}{well,}$ $\color{#F4E5D8}{but}$ $\color{#ECD9D8}{I'll}$ $\color{#DEC7CA}{try}$ $\color{#D0B6B9}{to}$ $\color{#C9B09A}{talk!}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D5B79E}{My}$ $\color{#E1C9B8}{little}$ $\color{#F1DDD4}{sister!}$ $\color{#F7E8CC}{@}$ $\color{#E9D7D0}{(She hasn't created an account yet)}$
 
