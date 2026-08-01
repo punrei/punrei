@@ -12,11 +12,11 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/j5DDs3f1/cute.png" width="500">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ   $\color{#C9B09A}{Hey!}$ $\color{#D8B9B9}{I'm}$ $\color{#E9D5C8}{Thai}$ $\color{#F3E6BE}{=.=}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ   $\color{#C9B09A}{Hey!}$ $\color{#D8B9B9}{I'm}$ $\color{#E9D5C8}{Thai}$ $\color{#F3E6BE}{=.=}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#C4AE97}{I}$ $\color{#CFB9A6}{might}$ $\color{#D8C3B5}{not}$ $\color{#E4CEC4}{understand}$ $\color{#F0D9CF}{English}$ $\color{#F6E4D3}{very}$ $\color{#F8ECCE}{well,}$ $\color{#F4E5D8}{but}$ $\color{#ECD9D8}{I'll}$ $\color{#DEC7CA}{try}$ $\color{#D0B6B9}{to}$ $\color{#C9B09A}{talk!}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#C4AE97}{I}$ $\color{#CFB9A6}{might}$ $\color{#D8C3B5}{not}$ $\color{#E4CEC4}{understand}$ $\color{#F0D9CF}{English}$ $\color{#F6E4D3}{very}$ $\color{#F8ECCE}{well,}$ $\color{#F4E5D8}{but}$ $\color{#ECD9D8}{I'll}$ $\color{#DEC7CA}{try}$ $\color{#D0B6B9}{to}$ $\color{#C9B09A}{talk!}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D5B79E}{My}$ $\color{#E1C9B8}{little}$ $\color{#F1DDD4}{sister!}$ $\color{#F7E8CC}{@}$ $\color{#E9D7D0}{(She hasn't created an account yet)}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D5B79E}{My}$ $\color{#E1C9B8}{little}$ $\color{#F1DDD4}{sister!}$ $\color{#F7E8CC}{@}$ $\color{#E9D7D0}{(She hasn't created an account yet)}$
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -30,4 +30,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/c46Cw4td/myskin.png" width="250">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/2ywRgr6k/flower.png" width="150">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/2ywRgr6k/flower.png" width="150">
