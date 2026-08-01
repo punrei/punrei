@@ -12,11 +12,11 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/j5DDs3f1/cute.png" width="500">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ   $\color{#C9B09A}{Hey!}$ $\color{#D8B9B9}{I'm}$ $\color{#E9D5C8}{Thai}$ $\color{#F3E6BE}{=.=}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ   $\color{#D9C5BF}{Hey!}$ $\color{#CBBEC7}{I'm}$ $\color{#A79CC2}{Thai}$ $\color{#6B6A8B}{=.=}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#C4AE97}{I}$ $\color{#CFB9A6}{might}$ $\color{#D8C3B5}{not}$ $\color{#E4CEC4}{understand}$ $\color{#F0D9CF}{English}$ $\color{#F6E4D3}{very}$ $\color{#F8ECCE}{well,}$ $\color{#F4E5D8}{but}$ $\color{#ECD9D8}{I'll}$ $\color{#DEC7CA}{try}$ $\color{#D0B6B9}{to}$ $\color{#C9B09A}{talk!}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#D2C1C2}{might}$ $\color{#CBC0C6}{not}$ $\color{#C2BACB}{understand}$ $\color{#B8B2CC}{English}$ $\color{#AEAACC}{very}$ $\color{#A3A1CA}{well,}$ $\color{#9797C4}{but}$ $\color{#8988B7}{I'll}$ $\color{#7B78A3}{try}$ $\color{#726F95}{to}$ $\color{#6B6A8B}{talk!}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D5B79E}{My}$ $\color{#E1C9B8}{little}$ $\color{#F1DDD4}{sister!}$ $\color{#F7E8CC}{@}$ $\color{#E9D7D0}{(She hasn't created an account yet)}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D9C5BF}{My}$ $\color{#A99DC3}{little}$ $\color{#6B6A8B}{sister!}$ @rinoya-147
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -24,9 +24,9 @@
   </a>
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    $\color{#7E7F86}{This}$ $\color{#888991}{is}$ $\color{#9294A0}{me}$ $\color{#9C9DAF}{on}$ $\color{#A7A8BC}{Pony}$ $\color{#908481}{Town!}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    $\color{#D9C5BF}{This}$ $\color{#CDBFC5}{is}$ $\color{#BFB8CA}{me}$ $\color{#AFAECD}{on}$ $\color{#918EB6}{Pony}$ $\color{#6B6A8B}{Town!}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{I}$ $\color{#888991}{usually}$ $\color{#9294A0}{use}$ $\color{#9C9DAF}{Kaori,}$ $\color{#A7A8BC}{Mamaguro,}$ $\color{#B8B9C4}{or}$ $\color{#A69B98}{Megumi}$ $\color{#908481}{skins . .}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#D0C0C3}{usually}$ $\color{#C7BBC8}{use}$ $\color{#BCB5CC}{Kaori,}$ $\color{#AEAACE}{Mamaguro,}$ $\color{#9F9DC6}{or}$ $\color{#8988B7}{Megumi}$ $\color{#6B6A8B}{skins . .}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/c46Cw4td/myskin.png" width="250">
 
