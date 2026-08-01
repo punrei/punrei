@@ -22,9 +22,9 @@
   </a>
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    $\color{#7E7F86}{This}$ $\color{#888991}{is}$ $\color{#9294A0}{me}$ $\color{#9C9DAF}{on}$ $\color{#A7A8BC}{Pony}$ $\color{#908481}{Town!}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    $\color{#7E7F86}{This}$ $\color{#888991}{is}$ $\color{#9294A0}{me}$ $\color{#9C9DAF}{on}$ $\color{#A7A8BC}{Pony}$ $\color{#908481}{Town!}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{I}$ $\color{#888991}{usually}$ $\color{#9294A0}{use}$ $\color{#9C9DAF}{Kaori,}$ $\color{#A7A8BC}{Mamaguro,}$ $\color{#B8B9C4}{or}$ $\color{#A69B98}{Megumi}$ $\color{#908481}{skins . .}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{I}$ $\color{#888991}{usually}$ $\color{#9294A0}{use}$ $\color{#9C9DAF}{Kaori,}$ $\color{#A7A8BC}{Mamaguro,}$ $\color{#B8B9C4}{or}$ $\color{#A69B98}{Megumi}$ $\color{#908481}{skins . .}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/c46Cw4td/myskin.png" width="250">
 
