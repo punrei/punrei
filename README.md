@@ -1,12 +1,12 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://img.shields.io/badge/TOJI-MAMAGURO-white?labelColor=F0D9E1)
 
-![](https://i.postimg.cc/3NrjX4LJ/mamaguroo.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://i.postimg.cc/3NrjX4LJ/mamaguroo.png)
 
 ㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=BB9779CA&width=435&lines=mamaguro-san+.+.)](https://git.io/typing-svg)
 
 ㅤㅤㅤㅤ꒰ㅤㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/2822157017/profile)ㅤㅤㅤ $\color{#7e7f86}{Feel}$ $\color{#9c9da7}{free}$ $\color{#afb1bb}{to}$ $\color{#bdadaa}{add}$ $\color{#a49693}{me!}$ $\color{#908481}{. .}$ 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7e7f86}{Sorry}$ $\color{#888991}{if}$ $\color{#9294A0}{I}$ $\color{#9C9DAF}{seem}$ $\color{#A7A8BC}{a}$ $\color{#B2B3C6}{little}$ $\color{#BEC0CE}{awkward}$ $\color{#C2C4CE}{or}$ $\color{#BEBBBF}{if}$ $\color{#B8B1AF}{I'm}$ $\color{#AEA5A1}{not}$ $\color{#A69B98}{very}$ $\color{#9E9290}{good}$ $\color{#978A88}{at}$ $\color{#908481}{talking!}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7e7f86}{Sorry}$ $\color{#888991}{if}$ $\color{#9294A0}{I}$ $\color{#9C9DAF}{seem}$ $\color{#A7A8BC}{a}$ $\color{#B2B3C6}{little}$ $\color{#BEC0CE}{awkward}$ $\color{#C2C4CE}{or}$ $\color{#BEBBBF}{if}$ $\color{#B8B1AF}{I'm}$ $\color{#AEA5A1}{not}$ $\color{#A69B98}{very}$ $\color{#9E9290}{good}$ $\color{#978A88}{at}$ $\color{#908481}{talking!}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/j5DDs3f1/cute.png" width="500">
 
