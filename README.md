@@ -4,7 +4,7 @@
 
 ㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=BB9779CA&width=435&lines=mamaguro-san+.+.)](https://git.io/typing-svg)
 
-ㅤㅤㅤㅤ꒰ㅤㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/2822157017/profile)ㅤㅤㅤ<span style="color:#7e7f86">Feel</span> <span style="color:#9c9da7">free</span> <span style="color:#afb1bb">to</span> <span style="color:#bdadaa">add</span> <span style="color:#a49693">me!</span> <span style="color:#908481">♡</span>
+ㅤㅤㅤㅤ꒰ㅤㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/2822157017/profile)ㅤㅤㅤ$\color{#7e7f86}{Feel}$ $\color{#9c9da7}{free}$ $\color{#afb1bb}{to}$ $\color{#bdadaa}{add}$ $\color{#a49693}{me!}$ $\color{#908481}{. .}$ 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/j5DDs3f1/cute.png" width="500">
 
