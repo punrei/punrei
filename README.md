@@ -14,7 +14,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#C4AE97}{I}$ $\color{#CFB9A6}{might}$ $\color{#D8C3B5}{not}$ $\color{#E4CEC4}{understand}$ $\color{#F0D9CF}{English}$ $\color{#F6E4D3}{very}$ $\color{#F8ECCE}{well,}$ $\color{#F4E5D8}{but}$ $\color{#ECD9D8}{I'll}$ $\color{#DEC7CA}{try}$ $\color{#D0B6B9}{to}$ $\color{#C9B09A}{talk!}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D5B79E}{My}$ $\color{#E1C9B8}{little}$ $\color{#F1DDD4}{sister!}$ $\color{#F7E8CC}{@username}$ $\color{#E9D7D0}{(She hasn't created an account yet.)}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D5B79E}{My}$ $\color{#E1C9B8}{little}$ $\color{#F1DDD4}{sister!}$ $\color{#F7E8CC}{@}$ $\color{#E9D7D0}{(She hasn't created an account yet)}$
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
