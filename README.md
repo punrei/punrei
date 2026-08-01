@@ -4,11 +4,11 @@
 
 ㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=BB9779CA&width=435&lines=mamaguro-san+.+.)](https://git.io/typing-svg)
 
-ㅤㅤㅤㅤㅤㅤ꒰ㅤㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/2822157017/profile)ㅤㅤㅤ $\color{#7e7f86}{Feel}$ $\color{#9c9da7}{free}$ $\color{#afb1bb}{to}$ $\color{#bdadaa}{add}$ $\color{#a49693}{me!}$ $\color{#908481}{. .}$ 
+ㅤㅤㅤㅤㅤㅤ꒰ㅤㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/2822157017/profile)ㅤㅤㅤ $\color{#D9C5BF}{Feel}$ $\color{#D0C0C2}{free}$ $\color{#C5BAC6}{to}$ $\color{#B8B3C9}{add}$ $\color{#AAA8C8}{me!}$ $\color{#9A98BF}{. .}$ 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7e7f86}{Sorry}$ $\color{#888991}{if}$ $\color{#9294A0}{I}$ $\color{#9C9DAF}{seem}$ $\color{#A7A8BC}{a}$ $\color{#B2B3C6}{little}$ $\color{#BEC0CE}{awkward}$ $\color{#C2C4CE}{or}$ $\color{#BEBBBF}{if}$ $\color{#B8B1AF}{I'm}$ $\color{#AEA5A1}{not}$ $\color{#A69B98}{very}$ $\color{#9E9290}{good}$ $\color{#978A88}{at}$ $\color{#908481}{talking!}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{Sorry}$ $\color{#D3C2C2}{if}$ $\color{#CCC0C5}{I}$ $\color{#C4BDC8}{seem}$ $\color{#BDBACB}{a}$ $\color{#B5B6CD}{little}$ $\color{#ADAFCE}{awkward}$ $\color{#A4A8CE}{or}$ $\color{#9BA0CB}{if}$ $\color{#928FC5}{I'm}$ $\color{#867EB7}{not}$ $\color{#796FA3}{very}$ $\color{#726C96}{good}$ $\color{#6E6B90}{at}$ $\color{#6B6A8B}{talking!}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{I}$ $\color{#7e7f86}{only}$ $\color{#9c9da7}{use}$ $\color{#a49693}{Ins}$ $\color{#908481}{sometimes}$  [Ins](https://www.instagram.com/1fyourememberme?igsh=MXFrdjU4OGRjYWp2bg==) ㅤㅤㅤㅤㅤ꒱
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#CFC1C5}{only}$ $\color{#C2BCCB}{use}$ $\color{#B2B3CB}{Ins}$ $\color{#6B6A8B}{sometimes}$  [Ins](https://www.instagram.com/1fyourememberme?igsh=MXFrdjU4OGRjYWp2bg==) ㅤㅤㅤㅤㅤ꒱
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/j5DDs3f1/cute.png" width="500">
 
