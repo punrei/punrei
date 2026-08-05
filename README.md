@@ -1,6 +1,6 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://img.shields.io/badge/TOJI-MAMAGURO-white?labelColor=F0D9E1)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://img.shields.io/badge/ℳegumi-175-white?labelColor=F0D9E1)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img src="https://i.postimg.cc/kg3KbksV/pja.png" width="900">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img src="https://i.postimg.cc/wBXht4dX/meguhana.png" width="900">
 
 ㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=BB9779CA&width=435&lines=mamaguro-san+.+.)](https://git.io/typing-svg)
 
@@ -10,7 +10,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#CFC1C5}{only}$ $\color{#C2BCCB}{use}$ $\color{#B2B3CB}{Ins}$ $\color{#6B6A8B}{sometimes}$  [Ins](https://www.instagram.com/1fyourememberme?igsh=MXFrdjU4OGRjYWp2bg==) ㅤㅤㅤㅤㅤ꒱
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/d0PGPgp8/mamaguroxtoji.png" width="500">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/vBXfh1T8/WEALLLOVEMEGUHANA.png" width="500">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ   $\color{#D9C5BF}{Hey!}$ $\color{#CBBEC7}{I'm}$ $\color{#A79CC2}{Thai}$ $\color{#6B6A8B}{=.=}$
 
