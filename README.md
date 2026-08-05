@@ -16,8 +16,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#D2C1C2}{might}$ $\color{#CBC0C6}{not}$ $\color{#C2BACB}{understand}$ $\color{#B8B2CC}{English}$ $\color{#AEAACC}{very}$ $\color{#A3A1CA}{well,}$ $\color{#9797C4}{but}$ $\color{#8988B7}{I'll}$ $\color{#7B78A3}{try}$ $\color{#726F95}{to}$ $\color{#6B6A8B}{talk!}$
 
-wip wip
-
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D9C5BF}{My}$ $\color{#A99DC3}{little}$ $\color{#6B6A8B}{sister!}$ [ @rinoya-147](https://github.com/rinoya-147)
 
 <p align="center">
@@ -29,6 +27,8 @@ wip wip
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    $\color{#D9C5BF}{This}$ $\color{#CDBFC5}{is}$ $\color{#BFB8CA}{me}$ $\color{#AFAECD}{on}$ $\color{#918EB6}{Pony}$ $\color{#6B6A8B}{Town!}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#D0C0C3}{usually}$ $\color{#C7BBC8}{use}$ $\color{#BCB5CC}{Kaori,}$ $\color{#AEAACE}{Mamaguro,}$ $\color{#9F9DC6}{or}$ $\color{#8988B7}{Megumi}$ $\color{#6B6A8B}{skins . .}$
+
+wip wip
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <img src="https://i.postimg.cc/B6G0tQG8/08052-ezgif-com-video-to-gif-converter.gif" width="700">
 
