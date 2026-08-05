@@ -28,6 +28,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#D0C0C3}{usually}$ $\color{#C7BBC8}{use}$ $\color{#BCB5CC}{Kaori,}$ $\color{#AEAACE}{Mamaguro,}$ $\color{#9F9DC6}{or}$ $\color{#8988B7}{Megumi}$ $\color{#6B6A8B}{skins . .}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/B6G0tQG8/08052-ezgif-com-video-to-gif-converter.gif" width="700">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <img src="https://i.postimg.cc/B6G0tQG8/08052-ezgif-com-video-to-gif-converter.gif" width="700">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/2ywRgr6k/flower.png" width="150">
