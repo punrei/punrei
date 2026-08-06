@@ -4,11 +4,11 @@
 
 ㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=BB9779CA&width=435&lines=mamaguro-san+.+.)](https://git.io/typing-svg)
 
-ㅤㅤㅤㅤㅤㅤ꒰ㅤㅤㅤㅤㅤ[ℛ](https://www.roblox.com/users/2822157017/profile) obloxㅤㅤㅤ $\color{#D9C5BF}{Feel}$ $\color{#D0C0C2}{free}$ $\color{#C5BAC6}{to}$ $\color{#B8B3C9}{add}$ $\color{#AAA8C8}{me!}$ $\color{#9A98BF}{. .}$ 
+ㅤㅤㅤㅤㅤㅤ꒰ㅤㅤㅤㅤㅤ[ℛ](https://www.roblox.com/users/2822157017/profile)obloxㅤㅤㅤ $\color{#D9C5BF}{Feel}$ $\color{#D0C0C2}{free}$ $\color{#C5BAC6}{to}$ $\color{#B8B3C9}{add}$ $\color{#AAA8C8}{me!}$ $\color{#9A98BF}{. .}$ 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{Sorry}$ $\color{#D3C2C2}{if}$ $\color{#CCC0C5}{I}$ $\color{#C4BDC8}{seem}$ $\color{#BDBACB}{a}$ $\color{#B5B6CD}{little}$ $\color{#ADAFCE}{awkward}$ $\color{#A4A8CE}{or}$ $\color{#9BA0CB}{if}$ $\color{#928FC5}{I'm}$ $\color{#867EB7}{not}$ $\color{#796FA3}{very}$ $\color{#726C96}{good}$ $\color{#6E6B90}{at}$ $\color{#6B6A8B}{talking!}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#CFC1C5}{only}$ $\color{#C2BCCB}{use}$ $\color{#B2B3CB}{Ins}$ $\color{#6B6A8B}{sometimes}$  [𝓁](https://www.instagram.com/1fyourememberme?igsh=MXFrdjU4OGRjYWp2bg==) ns ㅤㅤㅤㅤㅤ꒱
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#CFC1C5}{only}$ $\color{#C2BCCB}{use}$ $\color{#B2B3CB}{Ins}$ $\color{#6B6A8B}{sometimes}$  [𝓁](https://www.instagram.com/1fyourememberme?igsh=MXFrdjU4OGRjYWp2bg==)ns ㅤㅤㅤㅤㅤ꒱
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/vBXfh1T8/WEALLLOVEMEGUHANA.png" width="500">
 
