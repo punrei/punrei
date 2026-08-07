@@ -28,27 +28,36 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{My}$ $\color{#888991}{English}$ $\color{#9294A0}{isn't}$ $\color{#9C9DAF}{that}$ $\color{#A7A8BC}{good,}$ $\color{#B2B3C6}{and}$ $\color{#BEC0CE}{I}$ $\color{#C2C4CE}{mostly}$ $\color{#BEBBBF}{speak}$ $\color{#A69B98}{Thai}$ $\color{#908481}{lol}$
 
-ㅤㅤㅤㅤ <table>
-ㅤㅤㅤㅤ <tr>
+</tr>
+</table>
 
-ㅤㅤㅤㅤ <td width="40%" align="center">
-ㅤㅤㅤㅤ <img src="https://i.postimg.cc/FznhtrZ1/mechibi.png" width="430">
-ㅤㅤㅤㅤ </td>
+<div align="center">
 
-ㅤㅤㅤㅤ <td width="60%">
+<table align="center" width="80%">
 
-ㅤㅤㅤㅤ $\color{#7E7F86}{ENTJ}$ $\color{#888991}{8w9}$ $\color{#9294A0}{sx8,}$ $\color{#9C9DAF}{sx/sp,}$ $\color{#908481}{854}$
+<tr>
 
-ㅤㅤㅤㅤ $\color{#7E7F86}{Te-Ni-Se-Fi}$ $\color{#9C9DAF}{/}$ $\color{#908481}{Te(Ni)}$
+<td width="40%" align="center">
+<img src="https://i.postimg.cc/FznhtrZ1/mechibi.png" width="420">
+</td>
 
-ㅤㅤㅤㅤ $\color{#7E7F86}{Choleric-Melancholic}$
+<td width="60%">
 
-ㅤㅤㅤㅤ $\color{#7E7F86}{26/07/2021}$
+$\color{#7E7F86}{ENTJ}$ $\color{#888991}{8w9}$ $\color{#9294A0}{sx8,}$ $\color{#9C9DAF}{sx/sp,}$ $\color{#908481}{854}$
 
-ㅤㅤㅤㅤ </td>
+$\color{#7E7F86}{Te-Ni-Se-Fi}$ $\color{#9C9DAF}{/}$ $\color{#908481}{Te(Ni)}$
 
-ㅤㅤㅤㅤ </tr>
-ㅤㅤㅤㅤ </table>
+$\color{#7E7F86}{Choleric-Melancholic}$
+
+$\color{#7E7F86}{26/07/2021}$
+
+</td>
+
+</tr>
+
+</table>
+
+</div>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <img src="https://i.postimg.cc/B6G0tQG8/08052-ezgif-com-video-to-gif-converter.gif" width="700">
 
