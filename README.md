@@ -22,7 +22,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31oeleffqh23bidpk6kgmamq2r4a&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=908481&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31oeleffqh23bidpk6kgmamq2r4a&redirect=true)
 
-ㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/k5sjnf2H/00.png" width="700">
+ㅤㅤ<img src="https://i.postimg.cc/k5sjnf2H/00.png" width="700">
 
 </div>
 
