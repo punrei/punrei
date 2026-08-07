@@ -59,6 +59,42 @@ $\color{#7E7F86}{26/07/2021}$
 
 </div>
 
+<div align="center">
+
+<table align="center" width="80%">
+
+<tr>
+
+<td width="60%" align="center">
+
+$\color{#010E54}{INTJ}$ $\color{#1A2470}{5w4}$ $\color{#32408C}{sx5,}$ $\color{#4D5FA9}{sx/sp,}$ $\color{#010E54}{549}$
+
+<br>
+
+$\color{#010E54}{Ni-Te-Fi-Se}$ $\color{#4D5FA9}{/}$ $\color{#010E54}{Ni(Te)}$
+
+<br>
+
+$\color{#010E54}{Melancholic}$
+
+<br>
+
+$\color{#010E54}{05/07/2026}$
+
+</td>
+
+<td width="40%" align="center">
+
+<img src="https://i.postimg.cc/wMW403kw/mysischibi.png" width="420">
+
+</td>
+
+</tr>
+
+</table>
+
+</div>
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <img src="https://i.postimg.cc/B6G0tQG8/08052-ezgif-com-video-to-gif-converter.gif" width="700">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/2ywRgr6k/flower.png" width="150">
