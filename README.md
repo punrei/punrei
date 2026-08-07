@@ -10,7 +10,11 @@
 
 </div>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://img.shields.io/badge/ℳegumi-175-white?labelColor=F0D9E1)
+<div align="center">
+
+![](https://img.shields.io/badge/ℳegumi-175-white?labelColor=F0D9E1)
+
+</div>
 
 ㅤㅤㅤㅤㅤㅤ꒰ㅤㅤㅤㅤㅤ[ℛ](https://www.roblox.com/users/2822157017/profile)obloxㅤㅤㅤ $\color{#D9C5BF}{Feel}$ $\color{#D0C0C2}{free}$ $\color{#C5BAC6}{to}$ $\color{#B8B3C9}{add}$ $\color{#AAA8C8}{me!}$ $\color{#9A98BF}{. .}$ 
 
