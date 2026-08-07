@@ -28,11 +28,11 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{My}$ $\color{#888991}{English}$ $\color{#9294A0}{isn't}$ $\color{#9C9DAF}{that}$ $\color{#A7A8BC}{good,}$ $\color{#B2B3C6}{and}$ $\color{#BEC0CE}{I}$ $\color{#C2C4CE}{mostly}$ $\color{#BEBBBF}{speak}$ $\color{#A69B98}{Thai}$ $\color{#908481}{lol}$
 
-<table>
+ㅤㅤㅤㅤ <table>
 <tr>
 
 <td width="40%" align="center">
-<img src="https://i.postimg.cc/FznhtrZ1/mechibi.png" width="450">
+<img src="https://i.postimg.cc/FznhtrZ1/mechibi.png" width="430">
 </td>
 
 <td width="60%">
