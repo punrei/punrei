@@ -1,22 +1,50 @@
+<div align="center">
+
 <img src="https://i.postimg.cc/xTt0HRDs/802-20260807134258.png" width="900">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img src="https://i.postimg.cc/wBXht4dX/meguhana.png" width="900">
+</div>
+
+<div align="center">
+
+<img src="https://i.postimg.cc/wBXht4dX/meguhana.png" width="900">
+
+</div>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://img.shields.io/badge/ℳegumi-175-white?labelColor=F0D9E1)
 
 ㅤㅤㅤㅤㅤㅤ꒰ㅤㅤㅤㅤㅤ[ℛ](https://www.roblox.com/users/2822157017/profile)obloxㅤㅤㅤ $\color{#D9C5BF}{Feel}$ $\color{#D0C0C2}{free}$ $\color{#C5BAC6}{to}$ $\color{#B8B3C9}{add}$ $\color{#AAA8C8}{me!}$ $\color{#9A98BF}{. .}$ 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{Sorry}$ $\color{#D3C2C2}{if}$ $\color{#CCC0C5}{I}$ $\color{#C4BDC8}{seem}$ $\color{#BDBACB}{a}$ $\color{#B5B6CD}{little}$ $\color{#ADAFCE}{awkward}$ $\color{#A4A8CE}{or}$ $\color{#9BA0CB}{if}$ $\color{#928FC5}{I'm}$ $\color{#867EB7}{not}$ $\color{#796FA3}{very}$ $\color{#726C96}{good}$ $\color{#6E6B90}{at}$ $\color{#6B6A8B}{talking!}$
+<div align="center">
+
+$\color{#D9C5BF}{Sorry}$ $\color{#D3C2C2}{if}$ $\color{#CCC0C5}{I}$ $\color{#C4BDC8}{seem}$ $\color{#BDBACB}{a}$ $\color{#B5B6CD}{little}$ $\color{#ADAFCE}{awkward}$ $\color{#A4A8CE}{or}$ $\color{#9BA0CB}{if}$ $\color{#928FC5}{I'm}$ $\color{#867EB7}{not}$ $\color{#796FA3}{very}$ $\color{#726C96}{good}$ $\color{#6E6B90}{at}$ $\color{#6B6A8B}{talking!}$
+
+</div>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#CFC1C5}{only}$ $\color{#C2BCCB}{use}$ $\color{#B2B3CB}{Ins}$ $\color{#6B6A8B}{sometimes}$  [𝓁](https://www.instagram.com/1fyourememberme?igsh=MXFrdjU4OGRjYWp2bg==)ns ㅤㅤㅤㅤㅤ꒱
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/vBXfh1T8/WEALLLOVEMEGUHANA.png" width="500">
+<div align="center">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ   $\color{#D9C5BF}{Hey!}$ $\color{#CBBEC7}{I'm}$ $\color{#A79CC2}{Thai}$ $\color{#6B6A8B}{=.=}$
+<img src="https://i.postimg.cc/vBXfh1T8/WEALLLOVEMEGUHANA.png" width="500">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#D2C1C2}{might}$ $\color{#CBC0C6}{not}$ $\color{#C2BACB}{understand}$ $\color{#B8B2CC}{English}$ $\color{#AEAACC}{very}$ $\color{#A3A1CA}{well,}$ $\color{#9797C4}{but}$ $\color{#8988B7}{I'll}$ $\color{#7B78A3}{try}$ $\color{#726F95}{to}$ $\color{#6B6A8B}{talk!}$
+</div>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D9C5BF}{My}$ $\color{#A99DC3}{little}$ $\color{#6B6A8B}{sister!}$ [ @rinoya-147](https://github.com/rinoya-147)
+<div align="center">
+
+$\color{#D9C5BF}{Hey!}$ $\color{#CBBEC7}{I'm}$ $\color{#A79CC2}{Thai}$ $\color{#6B6A8B}{=.=}$
+
+</div>
+
+<div align="center">
+
+$\color{#D9C5BF}{I}$ $\color{#D2C1C2}{might}$ $\color{#CBC0C6}{not}$ $\color{#C2BACB}{understand}$ $\color{#B8B2CC}{English}$ $\color{#AEAACC}{very}$ $\color{#A3A1CA}{well,}$ $\color{#9797C4}{but}$ $\color{#8988B7}{I'll}$ $\color{#7B78A3}{try}$ $\color{#726F95}{to}$ $\color{#6B6A8B}{talk!}$
+
+</div>
+
+<div align="center">
+
+$\color{#D9C5BF}{My}$ $\color{#A99DC3}{little}$ $\color{#6B6A8B}{sister!}$ [ @rinoya-147](https://github.com/rinoya-147)
+
+</div>
 
 <div align="center">
 
@@ -26,9 +54,17 @@
 
 </div>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    $\color{#7E7F86}{Honestly,}$ $\color{#888991}{I'm}$ $\color{#9294A0}{kinda}$ $\color{#9C9DAF}{bad}$ $\color{#A7A8BC}{at}$ $\color{#B2B3C6}{chatting,}$ $\color{#BEC0CE}{and}$ $\color{#C2C4CE}{I}$ $\color{#BEBBBF}{don't}$ $\color{#B8B1AF}{type}$ $\color{#AEA5A1}{much}$
+<div align="center">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{My}$ $\color{#888991}{English}$ $\color{#9294A0}{isn't}$ $\color{#9C9DAF}{that}$ $\color{#A7A8BC}{good,}$ $\color{#B2B3C6}{and}$ $\color{#BEC0CE}{I}$ $\color{#C2C4CE}{mostly}$ $\color{#BEBBBF}{speak}$ $\color{#A69B98}{Thai}$ $\color{#908481}{lol}$
+$\color{#7E7F86}{Honestly,}$ $\color{#888991}{I'm}$ $\color{#9294A0}{kinda}$ $\color{#9C9DAF}{bad}$ $\color{#A7A8BC}{at}$ $\color{#B2B3C6}{chatting,}$ $\color{#BEC0CE}{and}$ $\color{#C2C4CE}{I}$ $\color{#BEBBBF}{don't}$ $\color{#B8B1AF}{type}$ $\color{#AEA5A1}{much}$
+
+</div>
+
+<div align="center">
+
+$\color{#7E7F86}{My}$ $\color{#888991}{English}$ $\color{#9294A0}{isn't}$ $\color{#9C9DAF}{that}$ $\color{#A7A8BC}{good,}$ $\color{#B2B3C6}{and}$ $\color{#BEC0CE}{I}$ $\color{#C2C4CE}{mostly}$ $\color{#BEBBBF}{speak}$ $\color{#A69B98}{Thai}$ $\color{#908481}{lol}$
+
+</div>
 
 <div align="center">
 <table align="center" width="80%">
@@ -93,8 +129,20 @@ $\color{#2E5CA5}{05/}$ $\color{#4A78BE}{07/}$ $\color{#93B8E8}{20}$ $\color{#C8E
 
 </div>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/9fRvNP4B/angel2.png" width="500">
+<div align="center">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <img src="https://i.postimg.cc/B6G0tQG8/08052-ezgif-com-video-to-gif-converter.gif" width="900">
+<img src="https://i.postimg.cc/9fRvNP4B/angel2.png" width="500">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/2ywRgr6k/flower.png" width="150">
+</div>
+
+<div align="center">
+
+<img src="https://i.postimg.cc/B6G0tQG8/08052-ezgif-com-video-to-gif-converter.gif" width="900">
+
+</div>
+
+<div align="center">
+
+<img src="https://i.postimg.cc/2ywRgr6k/flower.png" width="150">
+
+</div>
