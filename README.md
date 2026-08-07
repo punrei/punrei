@@ -67,19 +67,19 @@ $\color{#7E7F86}{26/07/2021}$
 
 <td width="60%" align="center">
 
-$\color{#010E54}{INTJ}$ $\color{#1A2470}{5w4}$ $\color{#32408C}{sx5,}$ $\color{#4D5FA9}{sx/sp,}$ $\color{#010E54}{549}$
+$\color{#010E54}{INTJ}$ $\color{#1C347C}{5w4}$ $\color{#2E559C}{sx5,}$ $\color{#5178B7}{sx/sp,}$ $\color{#7598C5}{549}$
 
 <br>
 
-$\color{#010E54}{Ni-Te-Fi-Se}$ $\color{#4D5FA9}{/}$ $\color{#010E54}{Ni(Te)}$
+$\color{#010E54}{Ni-Te-}$ $\color{#2E559C}{Fi-}$ $\color{#5178B7}{Se}$ $\color{#9798B0}{/}$ $\color{#908481}{Ni(Te)}$
 
 <br>
 
-$\color{#010E54}{Melancholic}$
+$\color{#010E54}{Melan}$ $\color{#5178B7}{chol}$ $\color{#908481}{ic}$
 
 <br>
 
-$\color{#010E54}{05/07/2026}$
+$\color{#010E54}{05/}$ $\color{#2E559C}{07/}$ $\color{#7598C5}{20}$ $\color{#908481}{26}$
 
 </td>
 
