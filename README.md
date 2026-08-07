@@ -95,6 +95,6 @@ $\color{#2E5CA5}{05/}$ $\color{#4A78BE}{07/}$ $\color{#93B8E8}{20}$ $\color{#C8E
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/9fRvNP4B/angel2.png" width="500">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <img src="https://i.postimg.cc/B6G0tQG8/08052-ezgif-com-video-to-gif-converter.gif" width="700">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <img src="https://i.postimg.cc/B6G0tQG8/08052-ezgif-com-video-to-gif-converter.gif" width="900">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/2ywRgr6k/flower.png" width="150">
