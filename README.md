@@ -12,6 +12,12 @@
 
 <div align="center">
 
+⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
+
+</div>
+
+<div align="center">
+
 ![](https://img.shields.io/badge/ℳegumi-175-white?labelColor=F0D9E1)
 
 </div>
