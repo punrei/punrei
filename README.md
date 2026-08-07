@@ -32,7 +32,7 @@
 <tr>
 
 <td width="40%" align="center">
-<img src="https://i.postimg.cc/FznhtrZ1/mechibi.png" width="230">
+<img src="https://i.postimg.cc/FznhtrZ1/mechibi.png" width="450">
 </td>
 
 <td width="60%">
