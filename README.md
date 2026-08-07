@@ -12,7 +12,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/vBXfh1T8/WEALLLOVEMEGUHANA.png" width="500">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ   $\color{#D9C5BF}{Hey!}$ $\color{#CBBEC7}{I'm}$ $\color{#A79CC2}{Thai}$ $\color{#6B6A8B}{=.=}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ  # $\color{#D9C5BF}{Hey!}$ $\color{#CBBEC7}{I'm}$ $\color{#A79CC2}{Thai}$ $\color{#6B6A8B}{=.=}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#D9C5BF}{I}$ $\color{#D2C1C2}{might}$ $\color{#CBC0C6}{not}$ $\color{#C2BACB}{understand}$ $\color{#B8B2CC}{English}$ $\color{#AEAACC}{very}$ $\color{#A3A1CA}{well,}$ $\color{#9797C4}{but}$ $\color{#8988B7}{I'll}$ $\color{#7B78A3}{try}$ $\color{#726F95}{to}$ $\color{#6B6A8B}{talk!}$
 
