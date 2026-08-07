@@ -18,7 +18,11 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   $\color{#D9C5BF}{My}$ $\color{#A99DC3}{little}$ $\color{#6B6A8B}{sister!}$ [ @rinoya-147](https://github.com/rinoya-147)
 
+<div align="center">
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31oeleffqh23bidpk6kgmamq2r4a&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=908481&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31oeleffqh23bidpk6kgmamq2r4a&redirect=true)
+
+</div>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    $\color{#7E7F86}{Honestly,}$ $\color{#888991}{I'm}$ $\color{#9294A0}{kinda}$ $\color{#9C9DAF}{bad}$ $\color{#A7A8BC}{at}$ $\color{#B2B3C6}{chatting,}$ $\color{#BEC0CE}{and}$ $\color{#C2C4CE}{I}$ $\color{#BEBBBF}{don't}$ $\color{#B8B1AF}{type}$ $\color{#AEA5A1}{much}$
 
