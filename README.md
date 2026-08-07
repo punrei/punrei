@@ -29,16 +29,16 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{My}$ $\color{#888991}{English}$ $\color{#9294A0}{isn't}$ $\color{#9C9DAF}{that}$ $\color{#A7A8BC}{good,}$ $\color{#B2B3C6}{and}$ $\color{#BEC0CE}{I}$ $\color{#C2C4CE}{mostly}$ $\color{#BEBBBF}{speak}$ $\color{#A69B98}{Thai}$ $\color{#908481}{lol}$
 
 <div align="center">
-
 <table align="center" width="80%">
-
 <tr>
 
-<td width="40%" align="center" valign="middle">
+<td align="center" width="40%">
 <img src="https://i.postimg.cc/FznhtrZ1/mechibi.png" width="360">
 </td>
 
-<td width="60%" align="center" valign="middle">
+<td align="center" width="60%">
+
+<p>
 
 $\color{#7E7F86}{ENTJ}$ $\color{#888991}{8w9}$ $\color{#9294A0}{sx8,}$ $\color{#9C9DAF}{sx/sp,}$ $\color{#908481}{854}$
 
@@ -54,14 +54,13 @@ $\color{#7E7F86}{Choleric-}$ $\color{#888991}{Melan}$ $\color{#9294A0}{cho}$ $\c
 
 $\color{#7E7F86}{26/}$ $\color{#888991}{07/}$ $\color{#9294A0}{20}$ $\color{#908481}{21}$
 
+</p>
+
 </td>
 
 </tr>
-
 </table>
-
 </div>
-
 <div align="center">
 
 <table align="center" width="80%">
