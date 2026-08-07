@@ -1,10 +1,8 @@
 <img src="https://i.postimg.cc/xTt0HRDs/802-20260807134258.png" width="900">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://img.shields.io/badge/ℳegumi-175-white?labelColor=F0D9E1)
-
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img src="https://i.postimg.cc/wBXht4dX/meguhana.png" width="900">
 
-ㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=BB9779CA&width=435&lines=mamaguro-san+.+.)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://img.shields.io/badge/ℳegumi-175-white?labelColor=F0D9E1)
 
 ㅤㅤㅤㅤㅤㅤ꒰ㅤㅤㅤㅤㅤ[ℛ](https://www.roblox.com/users/2822157017/profile)obloxㅤㅤㅤ $\color{#D9C5BF}{Feel}$ $\color{#D0C0C2}{free}$ $\color{#C5BAC6}{to}$ $\color{#B8B3C9}{add}$ $\color{#AAA8C8}{me!}$ $\color{#9A98BF}{. .}$ 
 
