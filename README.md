@@ -24,9 +24,9 @@
   </a>
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    $\color{#7E7F86}{Honestly,}$ $\color{#888991}{I'm}$ $\color{#9294A0}{kinda}$ $\color{#9C9DAF}{bad}$ $\color{#A7A8BC}{at}$ $\color{#B2B3C6}{chatting,}$ $\color{#BEC0CE}{and}$ $\color{#C2C4CE}{I}$ $\color{#BEBBBF}{don't}$ $\color{#B8B1AF}{type}$ $\color{#AEA5A1}{much}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    $\color{#7E7F86}{Honestly,}$ $\color{#888991}{I'm}$ $\color{#9294A0}{kinda}$ $\color{#9C9DAF}{bad}$ $\color{#A7A8BC}{at}$ $\color{#B2B3C6}{chatting,}$ $\color{#BEC0CE}{and}$ $\color{#C2C4CE}{I}$ $\color{#BEBBBF}{don't}$ $\color{#B8B1AF}{type}$ $\color{#AEA5A1}{much}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{My}$ $\color{#888991}{English}$ $\color{#9294A0}{isn't}$ $\color{#9C9DAF}{that}$ $\color{#A7A8BC}{good,}$ $\color{#B2B3C6}{and}$ $\color{#BEC0CE}{I}$ $\color{#C2C4CE}{mostly}$ $\color{#BEBBBF}{speak}$ $\color{#A69B98}{Thai}$ $\color{#908481}{lol}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#7E7F86}{My}$ $\color{#888991}{English}$ $\color{#9294A0}{isn't}$ $\color{#9C9DAF}{that}$ $\color{#A7A8BC}{good,}$ $\color{#B2B3C6}{and}$ $\color{#BEC0CE}{I}$ $\color{#C2C4CE}{mostly}$ $\color{#BEBBBF}{speak}$ $\color{#A69B98}{Thai}$ $\color{#908481}{lol}$
 
 wip wip
 
