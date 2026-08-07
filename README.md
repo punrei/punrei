@@ -85,7 +85,7 @@ $\color{#2E5CA5}{05/}$ $\color{#4A78BE}{07/}$ $\color{#93B8E8}{20}$ $\color{#C8E
 
 <td width="40%" align="center">
 
-<img src="sister-image.png" width="320">
+<img src="https://i.postimg.cc/wMW403kw/mysischibi.png" width="420">
 
 </td>
 
