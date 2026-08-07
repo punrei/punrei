@@ -47,9 +47,9 @@ $\color{#7E7F86}{ENTJ}$ $\color{#888991}{8w9}$ $\color{#9294A0}{sx8,}$ $\color{#
 
 $\color{#7E7F86}{Te-Ni-Se-Fi}$ $\color{#9C9DAF}{/}$ $\color{#908481}{Te(Ni)}$
 
-$\color{#7E7F86}{Choleric-Melancholic}$
+$\color{#7E7F86}{Choleric-}$ $\color{#888991}{Melan}$ $\color{#9294A0}{cho}$ $\color{#908481}{lic}$
 
-$\color{#7E7F86}{26/07/2021}$
+$\color{#7E7F86}{26/}$ $\color{#888991}{07/}$ $\color{#9294A0}{20}$ $\color{#908481}{21}$
 
 </td>
 
