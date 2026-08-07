@@ -67,25 +67,25 @@ $\color{#7E7F86}{26/07/2021}$
 
 <td width="60%" align="center">
 
-$\color{#010E54}{INTJ}$ $\color{#1C3F8C}{5w4}$ $\color{#3C68B3}{sx5,}$ $\color{#6D93D6}{sx/sp,}$ $\color{#A9C9F7}{549}$
+$\color{#2E5CA5}{INTJ}$ $\color{#4A78BE}{5w4}$ $\color{#6C98D4}{sx5,}$ $\color{#93B8E8}{sx/sp,}$ $\color{#C8E4FF}{549}$
 
 <br>
 
-$\color{#010E54}{Ni-Te-}$ $\color{#2E5CA5}{Fi-}$ $\color{#5F88CB}{Se}$ $\color{#F5E8B8}{/}$ $\color{#B8D8FF}{Ni(Te)}$
+$\color{#2E5CA5}{Ni-Te-}$ $\color{#4A78BE}{Fi-}$ $\color{#6C98D4}{Se}$ $\color{#93B8E8}{/}$ $\color{#C8E4FF}{Ni(Te)}$
 
 <br>
 
-$\color{#010E54}{Melan}$ $\color{#6D93D6}{chol}$ $\color{#F5E8B8}{ic}$
+$\color{#2E5CA5}{Melan}$ $\color{#7BA3DC}{chol}$ $\color{#C8E4FF}{ic}$
 
 <br>
 
-$\color{#010E54}{05/}$ $\color{#4D76BF}{07/}$ $\color{#F5E8B8}{20}$ $\color{#B8D8FF}{26}$
+$\color{#2E5CA5}{05/}$ $\color{#4A78BE}{07/}$ $\color{#93B8E8}{20}$ $\color{#C8E4FF}{26}$
 
 </td>
 
 <td width="40%" align="center">
 
-<img src="https://i.postimg.cc/wMW403kw/mysischibi.png" width="420">
+<img src="sister-image.png" width="320">
 
 </td>
 
@@ -94,6 +94,7 @@ $\color{#010E54}{05/}$ $\color{#4D76BF}{07/}$ $\color{#F5E8B8}{20}$ $\color{#B8D
 </table>
 
 </div>
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <img src="https://i.postimg.cc/B6G0tQG8/08052-ezgif-com-video-to-gif-converter.gif" width="700">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/2ywRgr6k/flower.png" width="150">
