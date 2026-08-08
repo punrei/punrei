@@ -18,7 +18,7 @@
 
 <div align="center">
 
-![](https://img.shields.io/badge/ℳegumi-175-white?labelColor=928FC5)
+![](https://img.shields.io/badge/ℳegumi-175-white?labelColor=796FA3)
 
 </div>
 
