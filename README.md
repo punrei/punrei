@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://i.postimg.cc/NFBwtp09/kawaii.png" width="900">
+<img src="https://i.postimg.cc/NFBwtp09/kawaii.png" width="630">
 
 </div>
 
