@@ -22,7 +22,7 @@ $\color{#5F5C6B}{Perhaps,}$ $\color{#716C7B}{in}$ $\color{#87808D}{every}$ $\col
 
 <div align="center">
 
-[carrd](https://punrei.carrd.co/) ㅤㅤ <span style="color:#5F5C6B">.</span> ݁<span style="color:#77717F">₊</span> <span style="color:#958A94">⊹</span> <span style="color:#B8A8AC">.</span> ㅤㅤ[straw](https://punrei.straw.page) ㅤㅤ <span style="color:#D3C3C0">.</span> <span style="color:#B9A9AE">⊹</span> <span style="color:#887D89">₊</span> ݁<span style="color:#686473">.</span> ㅤㅤ [fusions](https://fusions.info/punpun)
+[carrd](https://punrei.carrd.co/) ㅤㅤ $\color{#5F5C6B}{.}$ ݁ $\color{#77717F}{₊}$ $\color{#958A94}{⊹}$ $\color{#B8A8AC}{.}$ ㅤㅤ[straw](https://punrei.straw.page) ㅤㅤ $\color{#D3C3C0}{.}$ $\color{#B9A9AE}{⊹}$ $\color{#887D89}{₊}$ ݁ $\color{#686473}{.}$ ㅤㅤ [fusions](https://fusions.info/punpun)
 
 </div>
 
