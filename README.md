@@ -6,7 +6,7 @@
 
 <div align="center">
 
-<img src="https://i.postimg.cc/qqttdJZf/815-20260812184043.png" width="430">
+<img src="https://i.postimg.cc/qqttdJZf/815-20260812184043.png" width="350">
 
 <div align="center">
 
