@@ -22,6 +22,12 @@ $\color{#5F5C6B}{Perhaps,}$ $\color{#716C7B}{in}$ $\color{#87808D}{every}$ $\col
 
 <div align="center">
 
+[carrd](https://punrei.carrd.co/) ㅤㅤ $\color{#5F5C6B}{.}$ ݁$\color{#77717F}{₊}$ $\color{#958A94}{⊹}$ $\color{#B8A8AC}{.}$ ㅤㅤ[straw](https://punrei.straw.page) ㅤㅤ $\color{#D3C3C0}{.}$ $\color{#B9A9AE}{⊹}$ $\color{#887D89}{₊}$ ݁$\color{#686473}{.}$ ㅤㅤ [fusions](https://fusions.info/punpun)
+
+</div>
+
+<div align="center">
+
 <img src="https://i.postimg.cc/vBXfh1T8/WEALLLOVEMEGUHANA.png" width="500">
 
 </div>
