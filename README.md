@@ -6,31 +6,17 @@
 
 <div align="center">
 
-<img src="https://i.postimg.cc/qqttdJZf/815-20260812184043.png" width="530">
+<img src="https://i.postimg.cc/qqttdJZf/815-20260812184043.png" width="430">
+
+<div align="center">
+
+$\color{#5F5C6B}{Perhaps}$ $\color{#6F6A78}{we}$ $\color{#817A87}{were}$ $\color{#938A94}{never}$ $\color{#A59AA0}{meant}$ $\color{#B8AAAE}{to}$ $\color{#CBBDBB}{meet,}$ $\color{#D8C9C5}{but}$ $\color{#C7B7B8}{I}$ $\color{#B3A3A9}{would}$ $\color{#9C919B}{still}$ $\color{#817B88}{choose}$ $\color{#696673}{you.}$
 
 </div>
 
 <div align="center">
 
-⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
-
-</div>
-
-<div align="center">
-
-![](https://img.shields.io/badge/ℳegumi-175-white?labelColor=796FA3)
-
-</div>
-
-<div align="center">
-
-$\color{#625F6D}{Perhaps}$ $\color{#77727F}{we}$ $\color{#8C858F}{were}$ $\color{#A39A9F}{never}$ $\color{#B9AFB1}{meant}$ $\color{#D0C4C2}{to}$ $\color{#B8ACB0}{meet,}$
-
-</div>
-
-<div align="center">
-
-$\color{#756F7D}{but}$ $\color{#8A818D}{I}$ $\color{#A097A0}{would}$ $\color{#B7A9AE}{still}$ $\color{#D4C7C4}{choose}$ $\color{#B0A3AA}{you}$
+$\color{#5F5C6B}{Perhaps,}$ $\color{#716C7B}{in}$ $\color{#87808D}{every}$ $\color{#9D919B}{life,}$ $\color{#B5A6AB}{I}$ $\color{#CBBDBB}{would}$ $\color{#DCD0CA}{choose}$ $\color{#B9A9AE}{you.}$
 
 </div>
 
