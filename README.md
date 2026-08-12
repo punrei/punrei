@@ -4,9 +4,13 @@
 
 </div>
 
+
 <div align="center">
 
 <img src="https://i.postimg.cc/qqttdJZf/815-20260812184043.png" width="350">
+
+</div>
+
 
 <div align="center">
 
@@ -20,11 +24,13 @@ $\color{#5F5C6B}{Perhaps,}$ $\color{#716C7B}{in}$ $\color{#87808D}{every}$ $\col
 
 </div>
 
+
 <div align="center">
 
 [carrd](https://punrei.carrd.co/) ㅤㅤ $\color{#5F5C6B}{.}$ ݁ $\color{#77717F}{₊}$ $\color{#958A94}{⊹}$ $\color{#B8A8AC}{.}$ ㅤㅤ[straw](https://punrei.straw.page) ㅤㅤ $\color{#D3C3C0}{.}$ $\color{#B9A9AE}{⊹}$ $\color{#887D89}{₊}$ ݁ $\color{#686473}{.}$ ㅤㅤ [fusions](https://fusions.info/punpun)
 
 </div>
+
 
 <div align="center">
 
@@ -32,23 +38,6 @@ $\color{#5F5C6B}{Perhaps,}$ $\color{#716C7B}{in}$ $\color{#87808D}{every}$ $\col
 
 </div>
 
-<div align="center">
-
-$\color{#D9C5BF}{Hey!}$ $\color{#CBBEC7}{I'm}$ $\color{#A79CC2}{Thai}$ $\color{#6B6A8B}{=.=}$
-
-</div>
-
-<div align="center">
-
-$\color{#D9C5BF}{I}$ $\color{#D2C1C2}{might}$ $\color{#CBC0C6}{not}$ $\color{#C2BACB}{understand}$ $\color{#B8B2CC}{English}$ $\color{#AEAACC}{very}$ $\color{#A3A1CA}{well,}$ $\color{#9797C4}{but}$ $\color{#8988B7}{I'll}$ $\color{#7B78A3}{try}$ $\color{#726F95}{to}$ $\color{#6B6A8B}{talk!}$
-
-</div>
-
-<div align="center">
-
-$\color{#D9C5BF}{My}$ $\color{#A99DC3}{little}$ $\color{#6B6A8B}{sister!}$ [ @rinoya-147](https://github.com/rinoya-147)
-
-</div>
 
 <div align="center">
 
