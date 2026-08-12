@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://i.postimg.cc/NFBwtp09/kawaii.png" width="500">
+<img src="https://i.postimg.cc/Kz4MNDbW/kawaii.png" width="500">
 
 </div>
 
@@ -34,7 +34,7 @@ $\color{#5F5C6B}{Perhaps,}$ $\color{#716C7B}{in}$ $\color{#87808D}{every}$ $\col
 
 <div align="center">
 
-<img src="https://i.postimg.cc/NFBwtp09/kawaii.png" width="500">
+<img src="https://i.postimg.cc/Kz4MNDbW/kawaii.png" width="500">
 
 </div>
 
