@@ -6,7 +6,7 @@
 
 <div align="center">
 
-$\color{#C6AEB4}{I}$ $\color{#AFA0AC}{t}$ $\color{#978FA5}{a}$ $\color{#7F809B}{f}$ $\color{#686F91}{u}$ $\color{#536287}{s}$ $\color{#3F557D}{h}$ $\color{#30496F}{i}$
+˚. $\color{#C6AEB4}{I}$ $\color{#AFA0AC}{t}$ $\color{#978FA5}{a}$ $\color{#7F809B}{f}$ $\color{#686F91}{u}$ $\color{#536287}{s}$ $\color{#3F557D}{h}$ $\color{#30496F}{i}$ ꒱
 
 </div>
 
