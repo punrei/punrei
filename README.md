@@ -25,7 +25,7 @@ $\color{#5F5C6B}{Perhaps}$ $\color{#6F6A78}{we}$ $\color{#817A87}{were}$ $\color
 
 <div align="center">
 
-$\color{#5F5C6B}{Perhaps,}$ $\color{#716C7B}{in}$ $\color{#87808D}{every}$ $\color{#9D919B}{life,}$ $\color{#B5A6AB}{I}$ $\color{#CBBDBB}{would}$ $\color{#DCD0CA}{choose}$ $\color{#B9A9AE}{you.}$
+◟ㅤ $\color{#5F5C6B}{Perhaps,}$ $\color{#716C7B}{in}$ $\color{#87808D}{every}$ $\color{#9D919B}{life,}$ $\color{#B5A6AB}{I}$ $\color{#CBBDBB}{would}$ $\color{#DCD0CA}{choose}$ $\color{#B9A9AE}{you.}$ ㅤ◞
 
 </div>
 
