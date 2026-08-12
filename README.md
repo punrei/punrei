@@ -36,6 +36,17 @@ $\color{#5F5C6B}{Perhaps,}$ $\color{#716C7B}{in}$ $\color{#87808D}{every}$ $\col
 
 </div>
 
+<div align="center">
+
+$\color{#C8AEB7}{I’m}$ $\color{#BDA4B1}{gonna}$ $\color{#AE9AAA}{save}$ $\color{#978EA1}{people}$ $\color{#807F98}{-}$ $\color{#6C718E}{Itadori}$ $\color{#53627F}{Yuji}$
+
+</div>
+
+<div align="center">
+
+$\color{#C8AEB7}{I’m}$ $\color{#B49EAD}{gonna}$ $\color{#9E91A3}{save}$ $\color{#887F99}{people}$ $\color{#716F8D}{-}$ $\color{#53627F}{Fushiguro}$ $\color{#30496F}{Megumi}$
+
+</div>
 
 <div align="center">
 
