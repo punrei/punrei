@@ -158,7 +158,19 @@ peak peak peak
 
 <div align="center">
 
+⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
+
+</div>
+
+<div align="center">
+
 <img src="https://i.postimg.cc/4nCNGWGP/peak2.png" width="430">
+
+</div>
+
+<div align="center">
+
+⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
 
 </div>
 
