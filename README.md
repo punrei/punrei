@@ -200,6 +200,6 @@ peak peak peak
 
 <div align="center">
 
-<img src="https://i.postimg.cc/Mp2MqyJY/ezgif-com-video-to-gif-converter.gif" width="430">
+<img src="https://i.postimg.cc/Mp2MqyJY/ezgif-com-video-to-gif-converter.gif" width="330">
 
 </div>
