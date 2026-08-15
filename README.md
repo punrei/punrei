@@ -80,7 +80,7 @@ $\color{#7E7F86}{My}$ $\color{#888991}{English}$ $\color{#9294A0}{isn't}$ $\colo
 <tr>
 
 <td align="center" width="40%">
-<img src="https://i.postimg.cc/FznhtrZ1/mechibi.png" width="420">
+<img src="https://i.postimg.cc/W1CBfhh7/megumicute.png" width="420">
 </td>
 
 <td align="center" width="60%">
@@ -110,25 +110,29 @@ $\color{#7E7F86}{26/}$ $\color{#888991}{07/}$ $\color{#9294A0}{20}$ $\color{#908
 
 <td width="60%" align="center">
 
-$\color{#2E5CA5}{INTJ}$ $\color{#4A78BE}{5w4}$ $\color{#6C98D4}{sx5,}$ $\color{#93B8E8}{sx/sp,}$ $\color{#C8E4FF}{549}$
+<div align="center">
 
-<br>
+$\color{#E1C6C2}{INTJ}$ $\color{#D9BFC0}{5w4}$ $\color{#CBB1BB}{sx5,}$ $\color{#B29EAF}{sx/sp,}$ $\color{#857D9E}{549}$
 
-$\color{#2E5CA5}{Ni-Te-}$ $\color{#4A78BE}{Fi-}$ $\color{#6C98D4}{Se}$ $\color{#93B8E8}{/}$ $\color{#C8E4FF}{Ni(Te)}$
+<br><br>
 
-<br>
+$\color{#E1C6C2}{Ni-Te-}$ $\color{#CBB1BB}{Fi-}$ $\color{#B29EAF}{Se}$ $\color{#9B8BA5}{/}$ $\color{#857D9E}{Ni(Te)}$
 
-$\color{#2E5CA5}{Melan}$ $\color{#7BA3DC}{chol}$ $\color{#C8E4FF}{ic}$
+<br><br>
 
-<br>
+$\color{#E1C6C2}{Melan}$ $\color{#B29EAF}{chol}$ $\color{#857D9E}{ic}$
 
-$\color{#2E5CA5}{05/}$ $\color{#4A78BE}{07/}$ $\color{#93B8E8}{20}$ $\color{#C8E4FF}{26}$
+<br><br>
+
+$\color{#E1C6C2}{05/}$ $\color{#CBB1BB}{07/}$ $\color{#9B8BA5}{20}$ $\color{#857D9E}{26}$
+
+</div>
 
 </td>
 
 <td width="40%" align="center">
 
-<img src="https://i.postimg.cc/wMW403kw/mysischibi.png" width="420">
+<img src="https://i.postimg.cc/xTTVXww8/nobaracute.png" width="420">
 
 </td>
 
