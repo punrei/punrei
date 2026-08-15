@@ -114,15 +114,9 @@ $\color{#7E7F86}{26/}$ $\color{#888991}{07/}$ $\color{#9294A0}{20}$ $\color{#908
 
 $\color{#E1C6C2}{INTJ}$ $\color{#D9BFC0}{5w4}$ $\color{#CBB1BB}{sx5,}$ $\color{#B29EAF}{sx/sp,}$ $\color{#857D9E}{549}$
 
-<br><br>
-
 $\color{#E1C6C2}{Ni-Te-}$ $\color{#CBB1BB}{Fi-}$ $\color{#B29EAF}{Se}$ $\color{#9B8BA5}{/}$ $\color{#857D9E}{Ni(Te)}$
 
-<br><br>
-
 $\color{#E1C6C2}{Melan}$ $\color{#B29EAF}{chol}$ $\color{#857D9E}{ic}$
-
-<br><br>
 
 $\color{#E1C6C2}{05/}$ $\color{#CBB1BB}{07/}$ $\color{#9B8BA5}{20}$ $\color{#857D9E}{26}$
 
