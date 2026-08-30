@@ -38,13 +38,13 @@ $\color{#D8B6B8}{just}$ $\color{#CEADB2}{like}$ $\color{#C4A4AC}{rain}$ $\color{
 
 <div align="center">
 
-$\color{#E8D4D2}{No}$ $\color{#D4C1CA}{matter}$ $\color{#C0B3C3}{what}$ $\color{#A8A0BA}{happens,}$ $\color{#8D88A9}{I'll}$ $\color{#857D9E}{find}$ $\color{#857D9E}{you}$ $\color{#8D88A9}{-Ichigo}$ $\color{#A8A0BA}{Kurosaki}$ ㅤ◝
+$\color{#E8D4D2}{No}$ $\color{#D4C1CA}{matter}$ $\color{#C0B3C3}{what}$ $\color{#A8A0BA}{happens,}$ $\color{#8D88A9}{I'll}$ $\color{#857D9E}{find}$ $\color{#857D9E}{you}$ $\color{#8D88A9}{-Ichigo}$ $\color{#A8A0BA}{Kurosaki}$
 
 </div>
 
 <div align="center">
 
-◟ㅤ $\color{#E8D4D2}{Even}$ $\color{#E5D0D1}{if}$ $\color{#E1CCCF}{I}$ $\color{#DDC7CC}{lived}$ $\color{#D8C2C9}{many}$ $\color{#D3BDC6}{lives,}$ $\color{#CEB8C3}{I'd}$ $\color{#C8B4C1}{want}$ $\color{#C0AFC0}{to}$ $\color{#B8A9BE}{meet}$ $\color{#AEA2B9}{you}$ $\color{#A39BB3}{again}$ $\color{#958FAC}{-Orihime}$ $\color{#857D9E}{Inoue}$
+$\color{#E8D4D2}{Even}$ $\color{#E5D0D1}{if}$ $\color{#E1CCCF}{I}$ $\color{#DDC7CC}{lived}$ $\color{#D8C2C9}{many}$ $\color{#D3BDC6}{lives,}$ $\color{#CEB8C3}{I'd}$ $\color{#C8B4C1}{want}$ $\color{#C0AFC0}{to}$ $\color{#B8A9BE}{meet}$ $\color{#AEA2B9}{you}$ $\color{#A39BB3}{again}$ $\color{#958FAC}{-Orihime}$ $\color{#857D9E}{Inoue}$
 
 </div>
 
