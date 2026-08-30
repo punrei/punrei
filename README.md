@@ -38,14 +38,13 @@ $\color{#625D6B}{If}$ $\color{#716874}{I}$ $\color{#80737D}{were}$ $\color{#8F7D
 
 <div align="center">
 
-$\color{#C8AEB7}{I’m}$ $\color{#BDA4B1}{gonna}$ $\color{#AE9AAA}{save}$ $\color{#978EA1}{people}$ $\color{#807F98}{-}$ $\color{#6C718E}{Itadori}$ $\color{#53627F}{Yuji}$
+$\color{#E8D4D2}{No}$ $\color{#D4C1CA}{matter}$ $\color{#C0B3C3}{what}$ $\color{#A8A0BA}{happens,}$ $\color{#8D88A9}{I'll}$ $\color{#857D9E}{find}$ $\color{#857D9E}{you}$ $\color{#8D88A9}{-Ichigo}$ $\color{#A8A0BA}{Kurosaki}$
 
 </div>
 
 <div align="center">
 
-$\color{#C8AEB7}{I’m}$ $\color{#B49EAD}{gonna}$ $\color{#9E91A3}{save}$ $\color{#887F99}{people}$ $\color{#716F8D}{-}$ $\color{#53627F}{Fushiguro}$ $\color{#30496F}{Megumi}$
-
+$\color{#E8D4D2}{Even}$ $\color{#D9C4CB}{if}$ $\color{#C8B7C4}{I}$ $\color{#B2A9BC}{lived}$ $\color{#9C96B3}{many}$ $\color{#857D9E}{lives,}$ $\color{#9C96B3}{I'd}$ $\color{#B2A9BC}{want}$ $\color{#C8B7C4}{to}$ $\color{#D9C4CB}{meet}$ $\color{#E8D4D2}{you}$ $\color{#857D9E}{again}$ $\color{#9C96B3}{-Orihime}$ $\color{#857D9E}{Inoue}$
 </div>
 
 <div align="center">
