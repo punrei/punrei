@@ -44,7 +44,8 @@ $\color{#E8D4D2}{No}$ $\color{#D4C1CA}{matter}$ $\color{#C0B3C3}{what}$ $\color{
 
 <div align="center">
 
-$\color{#E8D4D2}{Even}$ $\color{#D9C4CB}{if}$ $\color{#C8B7C4}{I}$ $\color{#B2A9BC}{lived}$ $\color{#9C96B3}{many}$ $\color{#857D9E}{lives,}$ $\color{#9C96B3}{I'd}$ $\color{#B2A9BC}{want}$ $\color{#C8B7C4}{to}$ $\color{#D9C4CB}{meet}$ $\color{#E8D4D2}{you}$ $\color{#857D9E}{again}$ $\color{#9C96B3}{-Orihime}$ $\color{#857D9E}{Inoue}$
+$\color{#E8D4D2}{Even}$ $\color{#E5D0D1}{if}$ $\color{#E2CCCF}{I}$ $\color{#DEC8CD}{lived}$ $\color{#DAC4CB}{many}$ $\color{#D6C0C8}{lives,}$ $\color{#D1BCC6}{I'd}$ $\color{#CCB8C4}{want}$ $\color{#C6B4C1}{to}$ $\color{#C0AFC0}{meet}$ $\color{#B9AABE}{you}$ $\color{#AFA4B9}{again}$ $\color{#9D96B2}{-Orihime}$ $\color{#857D9E}{Inoue}$
+
 </div>
 
 <div align="center">
