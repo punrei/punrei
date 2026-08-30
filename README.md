@@ -19,32 +19,32 @@
 
 <div align="center">
 
-$\color{#625D6B}{If}$ $\color{#716874}{I}$ $\color{#80737D}{were}$ $\color{#8F7D86}{the}$ $\color{#9E8790}{rain,}$ $\color{#AD9199}{could}$ $\color{#BA9BA1}{I}$ $\color{#C5A5AA}{connect}$ $\color{#CFAFB2}{with}$ $\color{#D7B8B8}{someone’s}$ $\color{#DEC2BE}{heart,}$
+◜ㅤ $\color{#625D6B}{If}$ $\color{#716874}{I}$ $\color{#80737D}{were}$ $\color{#8F7D86}{the}$ $\color{#9E8790}{rain,}$ $\color{#AD9199}{could}$ $\color{#BA9BA1}{I}$ $\color{#C5A5AA}{connect}$ $\color{#CFAFB2}{with}$ $\color{#D7B8B8}{someone’s}$ $\color{#DEC2BE}{heart,}$
 
 </div>
 
 <div align="center">
 
-◟ㅤ $\color{#D8B6B8}{just}$ $\color{#CEADB2}{like}$ $\color{#C4A4AC}{rain}$ $\color{#B99BA5}{can}$ $\color{#AE929E}{unite}$ $\color{#A28798}{the}$ $\color{#967D90}{eternally}$ $\color{#887487}{separated}$ $\color{#796A7D}{earth}$ $\color{#6E6375}{and}$ $\color{#625D6B}{sky?}$ ㅤ◞
+$\color{#D8B6B8}{just}$ $\color{#CEADB2}{like}$ $\color{#C4A4AC}{rain}$ $\color{#B99BA5}{can}$ $\color{#AE929E}{unite}$ $\color{#A28798}{the}$ $\color{#967D90}{eternally}$ $\color{#887487}{separated}$ $\color{#796A7D}{earth}$ $\color{#6E6375}{and}$ $\color{#625D6B}{sky?}$ ㅤ◞
 
 </div>
 
 
 <div align="center">
 
-[carrd](https://punrei.carrd.co/) ㅤㅤ $\color{#5F5C6B}{.}$ ݁ $\color{#77717F}{₊}$ $\color{#958A94}{⊹}$ $\color{#B8A8AC}{.}$ ㅤㅤ[ata](https://punrei.atabook.org/) ㅤㅤ $\color{#D3C3C0}{.}$ $\color{#B9A9AE}{⊹}$ $\color{#887D89}{₊}$ ݁ $\color{#686473}{.}$ ㅤㅤ [straw](https://punrei.straw.page)
+[carrd](https://punrei.carrd.co/) ㅤㅤ $\color{#5F5C6B}{.}$ ݁ $\color{#77717F}{₊}$ $\color{#958A94}{⊹}$ $\color{#B8A8AC}{.}$ ㅤㅤ[ata](https://punrei.atabook.org/) ㅤㅤ $\color{#D3C3C0}{.}$ $\color{#B9A9AE}{⊹}$ $\color{#887D89}{₊}$ ݁ $\color{#686473}{.}$ ㅤㅤ [straw](https://mwbread.straw.page/)
 
 </div>
 
 <div align="center">
 
-$\color{#E8D4D2}{No}$ $\color{#D4C1CA}{matter}$ $\color{#C0B3C3}{what}$ $\color{#A8A0BA}{happens,}$ $\color{#8D88A9}{I'll}$ $\color{#857D9E}{find}$ $\color{#857D9E}{you}$ $\color{#8D88A9}{-Ichigo}$ $\color{#A8A0BA}{Kurosaki}$
+$\color{#E8D4D2}{No}$ $\color{#D4C1CA}{matter}$ $\color{#C0B3C3}{what}$ $\color{#A8A0BA}{happens,}$ $\color{#8D88A9}{I'll}$ $\color{#857D9E}{find}$ $\color{#857D9E}{you}$ $\color{#8D88A9}{-Ichigo}$ $\color{#A8A0BA}{Kurosaki}$ ㅤ◝
 
 </div>
 
 <div align="center">
 
-$\color{#E8D4D2}{Even}$ $\color{#E5D0D1}{if}$ $\color{#E1CCCF}{I}$ $\color{#DDC7CC}{lived}$ $\color{#D8C2C9}{many}$ $\color{#D3BDC6}{lives,}$ $\color{#CEB8C3}{I'd}$ $\color{#C8B4C1}{want}$ $\color{#C0AFC0}{to}$ $\color{#B8A9BE}{meet}$ $\color{#AEA2B9}{you}$ $\color{#A39BB3}{again}$ $\color{#958FAC}{-Orihime}$ $\color{#857D9E}{Inoue}$
+◟ㅤ $\color{#E8D4D2}{Even}$ $\color{#E5D0D1}{if}$ $\color{#E1CCCF}{I}$ $\color{#DDC7CC}{lived}$ $\color{#D8C2C9}{many}$ $\color{#D3BDC6}{lives,}$ $\color{#CEB8C3}{I'd}$ $\color{#C8B4C1}{want}$ $\color{#C0AFC0}{to}$ $\color{#B8A9BE}{meet}$ $\color{#AEA2B9}{you}$ $\color{#A39BB3}{again}$ $\color{#958FAC}{-Orihime}$ $\color{#857D9E}{Inoue}$
 
 </div>
 
