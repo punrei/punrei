@@ -25,7 +25,7 @@ $\color{#5F5C6B}{If}$ $\color{#6B6674}{I}$ $\color{#77717F}{were}$ $\color{#837B
 
 <div align="center">
 
-◟ㅤ$\color{#C7B7B8}{just}$ $\color{#B9A9AE}{like}$ $\color{#AA9CA4}{rain}$ $\color{#9C919B}{can}$ $\color{#8E8490}{unite}$ $\color{#817B88}{the}$ $\color{#756F7D}{eternally}$ $\color{#6D6877}{separated}$ $\color{#666271}{earth}$ $\color{#625E6D}{and}$ $\color{#5F5C6B}{sky?}$ㅤ◞
+◟ㅤ $\color{#C7B7B8}{just}$ $\color{#B9A9AE}{like}$ $\color{#AA9CA4}{rain}$ $\color{#9C919B}{can}$ $\color{#8E8490}{unite}$ $\color{#817B88}{the}$ $\color{#756F7D}{eternally}$ $\color{#6D6877}{separated}$ $\color{#666271}{earth}$ $\color{#625E6D}{and}$ $\color{#5F5C6B}{sky?}$ ㅤ◞
 
 </div>
 
