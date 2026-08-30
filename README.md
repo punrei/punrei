@@ -6,7 +6,7 @@
 
 <div align="center">
 
-꒰ㅤ $\color{#E1C6C2}{I}$\color{#D9C1C0}{c}$\color{#D1BABC}{h}$\color{#C8B3B8}{i}$\color{#BFAAB5}{h}$\color{#AFA0AE}{i}$\color{#9B91A7}{m}$\color{#857D9E}{e}$ ㅤ꒱
+꒰ㅤ $\color{#E1C6C2}{I}$$\color{#D9C1C0}{c}$$\color{#D1BABC}{h}$$\color{#C8B3B8}{i}$$\color{#BFAAB5}{h}$$\color{#AFA0AE}{i}$$\color{#9B91A7}{m}$$\color{#857D9E}{e}$ ㅤ꒱
 
 </div>
 
