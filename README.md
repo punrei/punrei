@@ -12,20 +12,20 @@
 
 <div align="center">
 
-<img src="https://i.postimg.cc/qqttdJZf/815-20260812184043.png" width="350">
+<img src="https://i.postimg.cc/bJ2P4SRN/ichihimee.png" width="350">
 
 </div>
 
 
 <div align="center">
 
-$\color{#5F5C6B}{Perhaps}$ $\color{#6F6A78}{we}$ $\color{#817A87}{were}$ $\color{#938A94}{never}$ $\color{#A59AA0}{meant}$ $\color{#B8AAAE}{to}$ $\color{#CBBDBB}{meet,}$ $\color{#D8C9C5}{but}$ $\color{#C7B7B8}{I}$ $\color{#B3A3A9}{would}$ $\color{#9C919B}{still}$ $\color{#817B88}{choose}$ $\color{#696673}{you.}$
+$\color{#5F5C6B}{If}$ $\color{#6B6674}{I}$ $\color{#77717F}{were}$ $\color{#837B89}{the}$ $\color{#8F8592}{rain,}$ $\color{#9B8F99}{could}$ $\color{#A79AA0}{I}$ $\color{#B3A3A7}{connect}$ $\color{#BFAFB0}{with}$ $\color{#CBBDBB}{someone’s}$ $\color{#D8C9C5}{heart,}$
 
 </div>
 
 <div align="center">
 
-◟ㅤ $\color{#5F5C6B}{Perhaps,}$ $\color{#716C7B}{in}$ $\color{#87808D}{every}$ $\color{#9D919B}{life,}$ $\color{#B5A6AB}{I}$ $\color{#CBBDBB}{would}$ $\color{#DCD0CA}{choose}$ $\color{#B9A9AE}{you.}$ ㅤ◞
+◟ㅤ$\color{#C7B7B8}{just}$ $\color{#B9A9AE}{like}$ $\color{#AA9CA4}{rain}$ $\color{#9C919B}{can}$ $\color{#8E8490}{unite}$ $\color{#817B88}{the}$ $\color{#756F7D}{eternally}$ $\color{#6D6877}{separated}$ $\color{#666271}{earth}$ $\color{#625E6D}{and}$ $\color{#5F5C6B}{sky?}$ㅤ◞
 
 </div>
 
