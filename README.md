@@ -6,7 +6,7 @@
 
 <div align="center">
 
-꒰ㅤ $\color{#C6AEB4}{I}$ $\color{#AFA0AC}{t}$ $\color{#978FA5}{a}$ $\color{#7F809B}{f}$ $\color{#686F91}{u}$ $\color{#536287}{s}$ $\color{#3F557D}{h}$ $\color{#30496F}{i}$ ㅤ꒱
+꒰ㅤ $\color{#E1C6C2}{I}$\color{#D9C1C0}{c}$\color{#D1BABC}{h}$\color{#C8B3B8}{i}$\color{#BFAAB5}{h}$\color{#AFA0AE}{i}$\color{#9B91A7}{m}$\color{#857D9E}{e}$ ㅤ꒱
 
 </div>
 
@@ -19,13 +19,13 @@
 
 <div align="center">
 
-$\color{#5F5C6B}{If}$ $\color{#6B6674}{I}$ $\color{#77717F}{were}$ $\color{#837B89}{the}$ $\color{#8F8592}{rain,}$ $\color{#9B8F99}{could}$ $\color{#A79AA0}{I}$ $\color{#B3A3A7}{connect}$ $\color{#BFAFB0}{with}$ $\color{#CBBDBB}{someone’s}$ $\color{#D8C9C5}{heart,}$
+$\color{#625D6B}{If}$ $\color{#716874}{I}$ $\color{#80737D}{were}$ $\color{#8F7D86}{the}$ $\color{#9E8790}{rain,}$ $\color{#AD9199}{could}$ $\color{#BA9BA1}{I}$ $\color{#C5A5AA}{connect}$ $\color{#CFAFB2}{with}$ $\color{#D7B8B8}{someone’s}$ $\color{#DEC2BE}{heart,}$
 
 </div>
 
 <div align="center">
 
-◟ㅤ $\color{#C7B7B8}{just}$ $\color{#B9A9AE}{like}$ $\color{#AA9CA4}{rain}$ $\color{#9C919B}{can}$ $\color{#8E8490}{unite}$ $\color{#817B88}{the}$ $\color{#756F7D}{eternally}$ $\color{#6D6877}{separated}$ $\color{#666271}{earth}$ $\color{#625E6D}{and}$ $\color{#5F5C6B}{sky?}$ ㅤ◞
+◟ㅤ $\color{#D8B6B8}{just}$ $\color{#CEADB2}{like}$ $\color{#C4A4AC}{rain}$ $\color{#B99BA5}{can}$ $\color{#AE929E}{unite}$ $\color{#A28798}{the}$ $\color{#967D90}{eternally}$ $\color{#887487}{separated}$ $\color{#796A7D}{earth}$ $\color{#6E6375}{and}$ $\color{#625D6B}{sky?}$ ㅤ◞
 
 </div>
 
